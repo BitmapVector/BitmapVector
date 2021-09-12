@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BitmapVector
+- 👀 I’m interested in programming python and LUA
+- 💞️ I’m looking to collaborate on applications, projects etx [CLOSED COMMISIONS FOR NOW]
+- 📫 Email: crazycluboriginal@gmail.com
